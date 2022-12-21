@@ -1,5 +1,6 @@
 # 12-20  
   
+[취업질문.txt](https://github.com/young-ha713/12-20/files/10275513/default.txt)
   
   
 면접시 반드시 전문용어 사용해야함 ..  
